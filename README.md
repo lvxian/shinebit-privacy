@@ -9,7 +9,7 @@ The app does not require login or internet access to function.
 Your gratitude records and calendar data remain private and under your control.
 
 If you have any questions or concerns, feel free to contact us at:  
-**support@shinebit.app**
+**positivity.cn@gmail.com**
 
 ---
 
